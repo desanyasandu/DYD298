@@ -12,7 +12,6 @@
 
 - 📫 How to reach me **desanyasandu@gmail.com**
   
-- ⚡ Fun fact **Call me as DYD**
 
 </td>
 <td width="50%" align="center">
